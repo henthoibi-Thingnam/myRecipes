@@ -1,0 +1,1 @@
+serves only 2 people
